@@ -1,2 +1,0 @@
-# pratapsanap.github.io
-website
